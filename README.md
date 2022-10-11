@@ -11,3 +11,4 @@ You can click the Preview link to take a look at your changes.
 Wonderful day
 So I need adjustments
 Hoping to get 0 account soon
+I have gotten my 0 acct!
